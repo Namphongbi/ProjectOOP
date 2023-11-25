@@ -1,7 +1,12 @@
-HCMUS : Học hành chăm chỉ
-        Cảm nhận tinh hoa
-        Mở rộng vốn từ
-        Ươm mần tri thức
-        Sáng tạo tương lai
-Đó là những điều mà sản phẩm từ điển mà chúng em hướng đến. 
+(H)Học hành chăm chỉ 
+        
+(C)Cảm nhận tinh hoa 
+        
+(M)Mở rộng vốn từ
+        
+(U)Ươm mần tri thức
+        
+(S)Sáng tạo tương lai
+
+Đó là những điều mà từ điển của em muốn hướng đến (HCMUS). 
         
