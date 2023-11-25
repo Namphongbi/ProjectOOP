@@ -1,12 +1,16 @@
-(H)Học hành chăm chỉ 
+***H***ọc hành chăm chỉ 
         
-(C)Cảm nhận tinh hoa 
+***C***ảm nhận tinh hoa 
         
-(M)Mở rộng vốn từ
+***M***ở rộng vốn từ
         
-(U)Ươm mần tri thức
+***U***ơm mần tri thức
         
-(S)Sáng tạo tương lai
+***S***áng tạo tương lai
 
-Đó là những điều mà từ điển của em muốn hướng đến (HCMUS). 
+Đó là những điều mà từ điển của em muốn dành đến cho những sinh viên UET đang ngày đêm cày cuốc
+
+Hãy cùng nhau ***HCMUS*** 
+
+
         
